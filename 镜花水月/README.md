@@ -14,6 +14,7 @@
 * [天涯论坛有过哪些惊艳到你的帖子？ - 章北海的回答 - 知乎](https://www.zhihu.com/question/603450776/answer/20765305142)
 * [为什么作家和诗人自杀的比较多呢？ - 阿康的回答 - 知乎](https://www.zhihu.com/question/19913364/answer/2850123348)
 * [为什么作家和诗人自杀的比较多呢？ - 减紫的回答 - 知乎](https://www.zhihu.com/question/19913364/answer/2847410917)
+* [空心时代：从Labubu看意义与人生叙事的断裂](https://www.bilibili.com/video/BV1gtzSBRE1s)
 * 互联网已经将绝大部分信息差抹除了，知识已经随处可以获得，为何大部分人依旧无法获得大幅突破？
     * [Thoughts Memo的回答 - 知乎](https://www.zhihu.com/question/689452741/answer/1916097566908610366)
     * [Sigon的回答 - 知乎](https://www.zhihu.com/question/689452741/answer/16289577569)
