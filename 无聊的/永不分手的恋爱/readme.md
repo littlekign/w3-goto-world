@@ -28,6 +28,7 @@
 * [婚姻制度是否正在走向破产？ - 千重影的回答 - 知乎](https://www.zhihu.com/question/653047613/answer/55869722422)
 * [婚姻制度是否正在走向破产？ - 余说不说谎的回答 - 知乎](https://www.zhihu.com/question/653047613/answer/3473953995)
 * [现在结婚率越来越低的根本原因是什么？ - momo的回答 - 知乎](https://www.zhihu.com/question/1929961364673233370/answer/1991506118770443160)
+* [BILIBILI - 为什么中国不能承受一个不结婚的社会？](https://www.bilibili.com/video/BV1svkuBzECH)
 * [BILIBILI - 农村的离婚率高的可怕，结婚率几乎为0!](https://www.bilibili.com/video/BV1QBZDBrE6K/)
 * [你觉得是什么导致了苏联一开始就没把老百姓当人看的？ - 吠污寄生族的回答 - 知乎](https://www.zhihu.com/question/1995980673933128183/answer/1997614284423836152)
 * [BILIBILI - 出生人口跌破800万，怎样逃出低生育率陷阱？](https://www.bilibili.com/video/BV1keFjzPE6u)
