@@ -21,3 +21,4 @@
 * [你人生中太晚明白的道理是什么？ - 闲鱼养成记的回答 - 知乎](https://www.zhihu.com/question/470076571/answer/1963483028555825868)
 * [如何判断一个领导值不值得追随？ - 王富贵儿的回答 - 知乎](https://www.zhihu.com/question/669771573/answer/1946709388220925898)
 * [BILIBILI - 把关系处烂的10个行为](https://www.bilibili.com/video/BV13KW4zqELd)
+* [BILIBILI - 爱独处的人，命运多半会……](https://www.bilibili.com/video/BV1DGZeBsEY7)
