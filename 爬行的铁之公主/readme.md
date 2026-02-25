@@ -3,6 +3,7 @@
 * [为什么创业失败率很高？ - 北京Fund的回答 - 知乎](https://www.zhihu.com/question/351960948/answer/3144636286)
 * [净资产刚过5000万的中小老板，为什么不全卖掉换成现金吃喝玩乐躺平，而是整天操心费力提心吊胆去经营? - 森林里的湖的回答 - 知乎](https://www.zhihu.com/question/1959963856299337210/answer/1972430418411239093)
 * [年轻的时候做什么事情对后半生有巨大的好处？ - Gss.的回答 - 知乎](https://www.zhihu.com/question/346513004/answer/1996534439451314133)
+* [为什么别人会觉得你好欺负？ - 江湖的回答 - 知乎](https://www.zhihu.com/question/1963783421714228407/answer/1967623771016926358)
 * [社会上有哪些潜规则让你细思恐极？ - 沐暖的小馆的回答 - 知乎](https://www.zhihu.com/question/34886670/answer/2003934052877628893)
 * [为什么公司裁员最先裁的都是认真工作的老实人？ - 漂浮的扎莱的回答 - 知乎](https://www.zhihu.com/question/1911554761485948556/answer/1985096278758143397)
 * [BILIBILI - 培养还是压榨？很简单，看“信息”](https://www.bilibili.com/video/BV1yHZuBGEJp)
@@ -18,3 +19,4 @@
 * [你认为世界上绝大多数痛苦源于什么？ - 鲈鱼正美的回答 - 知乎](https://www.zhihu.com/question/1961432206149949077/answer/1989440819367793077)
 * [你人生中太晚明白的道理是什么？ - 闲鱼养成记的回答 - 知乎](https://www.zhihu.com/question/470076571/answer/1963483028555825868)
 * [如何判断一个领导值不值得追随？ - 王富贵儿的回答 - 知乎](https://www.zhihu.com/question/669771573/answer/1946709388220925898)
+* [BILIBILI - 把关系处烂的10个行为](https://www.bilibili.com/video/BV13KW4zqELd)
