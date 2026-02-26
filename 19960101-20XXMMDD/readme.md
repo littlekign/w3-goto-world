@@ -2,6 +2,7 @@
 
 * [BILIBILI - 《大明王朝》你真看懂了吗？国产第一神剧深度拆解！第一回](https://www.bilibili.com/video/BV16G411973A/)
 * [BILIBILI - 好皇帝也救不了坏系统！崇祯越努力，明朝越完蛋！](https://www.bilibili.com/video/BV1cXFVzsEkw)
+* [BILIBILI - 帝国如何被自己骗倒？统治者无知的背后，是制度在撒谎!](https://www.bilibili.com/video/BV1tcfCBmEiK)
 
 ---
 
