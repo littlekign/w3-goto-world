@@ -16,6 +16,7 @@
 * [为什么现在越来越多年轻人不愿意吃苦了？ - 风霜雪月的回答 - 知乎](https://www.zhihu.com/question/1929268098453730067/answer/1944200872193159762)
 * [为什么很多年轻人成年后还把失败归结为社会？ - 百独的回答 - 知乎](https://www.zhihu.com/question/518013746/answer/2643925077)
 * [为什么经历越多，越感觉这个社会比什么都恶心？ - ADM四维动量的回答 - 知乎](https://www.zhihu.com/question/456031339/answer/1910076968797464263)
+* [为什么经历越多，越感觉这个社会比什么都恶心？ - 上善在若水的回答 - 知乎](https://www.zhihu.com/question/456031339/answer/1907164836816748689)
 * [如何做到说话有分寸？ - 巴赫爱喝胡辣汤的回答 - 知乎](https://www.zhihu.com/question/26456607/answer/197931479)
 * [How to fix your entire life in 1 day](https://letters.thedankoe.com/p/how-to-fix-your-entire-life-in-1)
   * [BILIBILI - 03_如何在一天内彻底改变你的人生](https://www.bilibili.com/video/BV1NTzhB4E2f)  
