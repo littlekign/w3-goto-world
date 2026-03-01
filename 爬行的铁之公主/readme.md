@@ -12,6 +12,7 @@
 * [什么性格的人适合当领导？ - 天痴的回答 - 知乎](https://www.zhihu.com/question/609186271/answer/1994933527943337886)
 * [年轻的时候做什么事情对后半生有巨大的好处？ - Gss.的回答 - 知乎](https://www.zhihu.com/question/346513004/answer/1996534439451314133)
 * [为什么别人会觉得你好欺负？ - 江湖的回答 - 知乎](https://www.zhihu.com/question/1963783421714228407/answer/1967623771016926358)
+* [为什么我们不被允许有gap year？ - LittleNaturalist的回答 - 知乎](https://www.zhihu.com/question/593093174/answer/1952245022473827795)
 * [社会上有哪些潜规则让你细思恐极？ - 沐暖的小馆的回答 - 知乎](https://www.zhihu.com/question/34886670/answer/2003934052877628893)
 * [为什么公司裁员最先裁的都是认真工作的老实人？ - 漂浮的扎莱的回答 - 知乎](https://www.zhihu.com/question/1911554761485948556/answer/1985096278758143397)
 * [BILIBILI - 领导让我带人，新同事又笨又懒带不动，每天都很累，如何破解？](https://www.bilibili.com/video/BV1QgBHBzEA3)
