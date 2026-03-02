@@ -6,3 +6,6 @@
 
 
 [ACADEMIC HUB - 解析青少年犯罪率高峰之現象：「低自我控制」「與成熟代溝」之再議 (國立政治大學)](https://ah.lib.nccu.edu.tw/item?item_id=94612&locale=zh_TW) （在线阅读）
+
+* [为什么别人一眼就知道你是老实人? - 内维尔的回答 - 知乎](https://www.zhihu.com/question/644979426/answer/1958993318189957780)
+* [为什么公司裁员最先裁的都是认真工作的老实人？ - 漂浮的扎莱的回答 - 知乎](https://www.zhihu.com/question/1911554761485948556/answer/1985096278758143397)
