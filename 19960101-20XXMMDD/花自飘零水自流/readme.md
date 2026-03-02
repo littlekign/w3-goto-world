@@ -22,6 +22,4 @@ SINK: (Single Income, No Kids)
 
 * https://en.wikipedia.org/wiki/Inert_gas_asphyxiation
 
-皇后大道东转皇后大道中
-
-https://webfee.blogspot.com/2011/10/blog-post.html
+皇后大道东转皇后大道中：https://webfee.blogspot.com/2011/10/blog-post.html
