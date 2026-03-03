@@ -5,6 +5,7 @@
 
 * [BILIBILI - 重思胡适：第一反诈大师（任剑涛）](https://www.bilibili.com/video/BV1bH67BYEvG)
 * [高智商的人在生活中的表现比普通人更为突出和优秀吗？ - 倍儿正经的回答 - 知乎](https://www.zhihu.com/question/20046704/answer/17197806)
+* [低智商的人有什么特点？ - 常在战场的回答 - 知乎](https://www.zhihu.com/question/12556031225/answer/1911380833626980599)
 * [为何现在不善良的人越来越多? - 腼腆的鲨鱼的回答 - 知乎](https://www.zhihu.com/question/646881134/answer/1980895603526502074)
 * [人生开窍太晚，会出现什么结果？ - 胃窦Elaine的回答 - 知乎](https://www.zhihu.com/question/350099381/answer/1999502467029816167)
 * [人生开窍太晚，会出现什么结果？ - 懂升学的靓靓的回答 - 知乎](https://www.zhihu.com/question/350099381/answer/1998737774107456400)
