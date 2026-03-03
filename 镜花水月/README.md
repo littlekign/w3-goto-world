@@ -4,6 +4,7 @@
 
 
 * [BILIBILI - 重思胡适：第一反诈大师（任剑涛）](https://www.bilibili.com/video/BV1bH67BYEvG)
+* [为什么说，不要对任何人透露出你的真实情况？ - 域华话你知的回答 - 知乎](https://www.zhihu.com/question/629144605/answer/2012116713626420165)
 * [高智商的人在生活中的表现比普通人更为突出和优秀吗？ - 倍儿正经的回答 - 知乎](https://www.zhihu.com/question/20046704/answer/17197806)
 * [低智商的人有什么特点？ - 常在战场的回答 - 知乎](https://www.zhihu.com/question/12556031225/answer/1911380833626980599)
 * [为何现在不善良的人越来越多? - 腼腆的鲨鱼的回答 - 知乎](https://www.zhihu.com/question/646881134/answer/1980895603526502074)
