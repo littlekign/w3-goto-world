@@ -8,7 +8,7 @@
 
 
 
-
+* [为什么中国早期权力必须披着“道德”的外衣？ - 李文卓宇的文章 - 知乎](https://zhuanlan.zhihu.com/p/1988364944140424838)
 * [如何看待「不要完全相信老师的话，他们是社会实践最少的一个群体」这句话? - Kaiser的回答 - 知乎](https://www.zhihu.com/question/1969918318526862897/answer/2006501988339315461)
 * [BILIBI - 作为大学老师，越来越看不起现在的大学生怎么办](https://www.bilibili.com/video/BV1oz421U7XF)
 
