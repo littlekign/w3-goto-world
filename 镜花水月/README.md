@@ -3,6 +3,8 @@
 以及再重复说一遍：监狱、赌博、非法移民、性产业。这些非主流领域，是一个国家最真实的切片，性产业研究是理解一国运作规律和权力结构的黄金视角。
 
 
+[taiwanncf.org - 崩世代一財團化化與少子女化的危機與轉機](https://www.taiwanncf.org.tw/ttforum/57/57-03.pdf)
+
 * [BILIBILI - 重思胡适：第一反诈大师（任剑涛）](https://www.bilibili.com/video/BV1bH67BYEvG)
 * [为什么说，不要对任何人透露出你的真实情况？ - 域华话你知的回答 - 知乎](https://www.zhihu.com/question/629144605/answer/2012116713626420165)
 * [高智商的人在生活中的表现比普通人更为突出和优秀吗？ - 倍儿正经的回答 - 知乎](https://www.zhihu.com/question/20046704/answer/17197806)
