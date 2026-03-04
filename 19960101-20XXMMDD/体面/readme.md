@@ -25,6 +25,7 @@
 * [为什么公司裁员最先裁的都是认真工作的老实人？ - 漂浮的扎莱的回答 - 知乎](https://www.zhihu.com/question/1911554761485948556/answer/1985096278758143397)
 * [如何应对一群 13 - 18 岁的街头小混混的挑衅？ - 知乎](https://www.zhihu.com/question/23585788/answer/25095460) （油滑不让对方摸底）
 * [如何应对一群 13 - 18 岁的街头小混混的挑衅？ - 小狗丢丢的回答 - 知乎](https://www.zhihu.com/question/23585788/answer/25057683) （养条凶的狗）
+* [BILIBILI - 为什么校园霸凌不可能被消灭？—社会篇 (11)](https://www.bilibili.com/video/BV1CjFQzYEMd)
 
 
 ---
