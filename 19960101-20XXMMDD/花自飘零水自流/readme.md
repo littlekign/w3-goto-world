@@ -23,6 +23,7 @@
 
 帘卷西风，惊醒旧梦，谁比黄花瘦？
 
+* [为什么现在的人动不动就选择自杀呢？ - 知乎用户hUlOVC的回答 - 知乎](https://www.zhihu.com/question/1964440881676396017/answer/1979033492911330514)
 * https://en.wikipedia.org/wiki/Inert_gas_asphyxiation
 * https://home.gamer.com.tw/artwork.php?sn=4937952
 * https://www.zhihu.com/question/333830805/answer/1190083246
