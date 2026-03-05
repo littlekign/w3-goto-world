@@ -30,3 +30,8 @@
 * [如何判断一个领导值不值得追随？ - 王富贵儿的回答 - 知乎](https://www.zhihu.com/question/669771573/answer/1946709388220925898)
 * [BILIBILI - 把关系处烂的10个行为](https://www.bilibili.com/video/BV13KW4zqELd)
 * [BILIBILI - 爱独处的人，命运多半会……](https://www.bilibili.com/video/BV1DGZeBsEY7)
+
+---
+
+* [什么时候你意识到自己该辞职了? - 起凡的回答 - 知乎](https://www.zhihu.com/question/9168806770/answer/1964285724544196884)
+* [一个人离职前有什么征兆？ - jason wang的回答 - 知乎](https://www.zhihu.com/question/486792072/answer/3105440854)
