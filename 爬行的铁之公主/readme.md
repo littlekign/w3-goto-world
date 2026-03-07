@@ -20,6 +20,7 @@
 * [领导让我把安身立命的技术教给同事，怎么办？ - 庸人自扰的回答 - 知乎](https://www.zhihu.com/question/658654234/answer/1970570135929599291)
 * [现在很多年轻人为什么都怕上班？ - 阴阳怪气的回答 - 知乎](https://www.zhihu.com/question/538211740/answer/1949276672202367302)
 * [为什么人在一事无成的时候往往不会被人尊重被人瞧得起？ - 人设之外的回答 - 知乎](https://www.zhihu.com/question/644786064/answer/1947486267769096157)
+* [为什么老板仅凭一次聊天就判断某些人不堪大用？ - Yuan zou的回答 - 知乎](https://www.zhihu.com/question/8330712531/answer/70222674356)
 * [为什么做得再好都会有人看不起你？ - 长锋空折的回答 - 知乎](https://www.zhihu.com/question/599291895/answer/1981497303748612210)
 * [腾讯网 - “嘴碎”的人，身上具备这些特征，一定保持距离](https://news.qq.com/rain/a/20230929A00CD500)
 * [社会运行的规律是什么？ - 至高智慧的回答 - 知乎](https://www.zhihu.com/question/598750668/answer/3554574174)
