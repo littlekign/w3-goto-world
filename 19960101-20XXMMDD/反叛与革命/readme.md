@@ -38,6 +38,7 @@ quora
 * [如何看待不保护弱势男人的国家时没有未来的？ 赛博手推车的回答 - 知乎](https://www.zhihu.com/question/1942353942949369744/answer/2016599153359212788)
 * [如何看待「内卷恰恰是阶级尚未固化的明证」的观点？ - 名字的回答 - 知乎](https://www.zhihu.com/question/1961350493709238427/answer/2007065476187054289)
 * [为什么所有公司的高管都存在内部斗争，内耗严重？ - Mivraquel的回答 - 知乎](https://www.zhihu.com/question/658625912/answer/1988954766018102174)
+* [越穷的人为什么具有更强的道德感？ - 探索为何的回答 - 知乎](https://www.zhihu.com/question/640247871/answer/1986892701598234083)
 * [BILIBILI - 那些侥幸青史留名的普通人，是怎么过完的一生？](https://www.bilibili.com/video/BV1MywRzfEfy)
 * [“英雄史观”和“群众史观”到底谁更有说服力？ - 可乐的回答 - 知乎](https://www.zhihu.com/question/31197746/answer/3392913457)
 * [BILIBILI - 要从老百姓视角看历史 毕竟我们都是普通人](https://www.bilibili.com/video/BV1b6mtB1EV3)
