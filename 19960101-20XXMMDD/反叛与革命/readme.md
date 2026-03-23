@@ -26,8 +26,8 @@ quora
 
 * [BILIBILI - 人性之书《金瓶梅》到底讲了什么](https://www.bilibili.com/video/BV1xt421w7JD)
 * [BILIBILI - 【吸奇侠】第一奇书《金瓶梅》01 天饼星的陨落](https://www.bilibili.com/video/BV1hw411H79u)
-* [《金瓶梅》白話版 文学城电台](https://zh.wenxuecity.com/radio/post.php?act=album_view&albumid=291&userid=490593)
 * [笔趣阁 - 《白话金瓶梅》](https://www.biquge.tw/book/3098865.html)
+* [白话《金瓶梅》第一回 这是一部有毒的杀人小说 - 骁骑读书的文章 - 知乎](https://zhuanlan.zhihu.com/p/432979538)
 
 ---
 
