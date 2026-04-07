@@ -82,6 +82,7 @@
 
 * [性是必需品嗎？ - 九成八的回答 - 知乎](https://www.zhihu.com/question/8540393834/answer/2022312751398167024) (快乐的方式)
 * [为什么大多数人宁愿吃生活的苦，也不愿吃学习的苦？ - 快乐小偷的回答 - 知乎](https://www.zhihu.com/question/272483562/answer/2022094135436289572)
+* [BILIBILI - 为什么很多年轻人，不去学个技术，而是选择送外卖、送快递、跑滴](https://www.bilibili.com/video/BV1B39LBzELH)
 * [开学前日，小区有孩子想不通，从楼上跳下；到底是孩子变了，还是教育变了？ - 吾牧之的回答 - 知乎](https://www.zhihu.com/question/582594767/answer/1930361759526555727) (人生价值与人生意义)
 
 
