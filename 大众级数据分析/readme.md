@@ -1,5 +1,7 @@
 ### 站点浏览
 
+年度访问量最大的网站：https://zh.semrush.com/trending-websites/
+
 商务预报：https://cif.mofcom.gov.cn/cif/html/indexCenter2024/index.html
 
 数据指标： https://zh.tradingeconomics.com/indicators
