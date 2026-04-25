@@ -66,8 +66,8 @@ Made with [contrib.rocks](https://contrib.rocks).
 
 [npcola/TI](https://github.com/npcola/TI)、[paipai-Studio/Anti-Fraud](https://github.com/paipai-Studio/Anti-Fraud)
 
-[bitcookies/winrar-keygen](https://github.com/bitcookies/winrar-keygen)、[Awesome-Windows/Awesome](https://github.com/Awesome-Windows/Awesome)、[jnv/lists](https://github.com/jnv/lists)
+[bitcookies/winrar-keygen](https://github.com/bitcookies/winrar-keygen)、[jnv/lists](https://github.com/jnv/lists)
 
-[Yidadaa/ChatGPT-Next-Web](https://github.com/Yidadaa/ChatGPT-Next-Web)、[indiff/qttabbar](https://github.com/indiff/qttabbar)
+[Yidadaa/ChatGPT-Next-Web](https://github.com/Yidadaa/ChatGPT-Next-Web)
 
 
