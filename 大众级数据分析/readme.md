@@ -24,6 +24,11 @@ polymarket 各个事件概率：https://polymarket.com/zh
 
 全球城市生活成本指数：https://www.expatistan.com/cost-of-living
 
+民间档案馆：https://minjian-danganguan.org/zh/archive
+
+AI对中国就业市场冲击：https://mistysun19.github.io/ai-jobs-cn/cn/
+
+
 经济研究：
 
 * https://www.newyorkfed.org/research
