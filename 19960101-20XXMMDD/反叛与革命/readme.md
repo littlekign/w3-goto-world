@@ -14,6 +14,7 @@
 * [为什么读书读太多反而显得傻？ - 天在水的回答 - 知乎](https://www.zhihu.com/question/558915362/answer/2023467941346255357)
 * [《水浒传》有多现实？ - vivigiggle4096的回答 - 知乎](https://www.zhihu.com/question/384805207/answer/2030281444325582560)
 * [BILIBILI - 哪些现象或征兆让你认定一个政权或王朝气数已尽？](https://www.bilibili.com/video/BV1cdn3zTEVG)
+* [教科书中有哪些细思恐极的细节？ - 鞭临天下的回答 - 知乎](https://www.zhihu.com/question/35495488/answer/1966243133709850424)
 
 ---
 
