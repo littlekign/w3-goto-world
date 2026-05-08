@@ -13,6 +13,7 @@
 * [同胞在国外名声好吗？ - 鞭临天下的回答 - 知乎](https://www.zhihu.com/question/437759941/answer/1949577781395579800) (从一定程度说明了中国人(社会制度)的底色。台湾人的话，不清楚，短暂接触一二，且资料较少不好判断)
 * [为什么读书读太多反而显得傻？ - 天在水的回答 - 知乎](https://www.zhihu.com/question/558915362/answer/2023467941346255357)
 * [《水浒传》有多现实？ - vivigiggle4096的回答 - 知乎](https://www.zhihu.com/question/384805207/answer/2030281444325582560)
+* [BILIBILI - 哪些现象或征兆让你认定一个政权或王朝气数已尽？](https://www.bilibili.com/video/BV1cdn3zTEVG)
 
 ---
 
