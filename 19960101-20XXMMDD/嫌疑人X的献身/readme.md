@@ -7,6 +7,7 @@
 
 [犯罪学入门应该看什么书？ - 盛夏的回答 - 知乎](https://www.zhihu.com/question/20040019/answer/1247666210)
 
+* [为什么感觉电诈怎么查都查不干净啊? - 知乎](https://www.zhihu.com/question/14661635845)
 * [为什么广西盛产鬼火少年? - 知乎](https://www.zhihu.com/question/328011093)
 * [深圳女子捉弄残疾老人踢走其拐杖，如何看待这一行为？ - 浩浩妈咪的回答 - 知乎](https://www.zhihu.com/question/542659734/answer/2572152999)
 * [如何看待《名侦探柯南》联动《我的英雄学院》，这波会凉吗？ - 郑煜的回答 - 知乎](https://www.zhihu.com/question/2003516220792664867/answer/2004368583665418646)
