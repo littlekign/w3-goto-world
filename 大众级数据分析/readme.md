@@ -65,4 +65,12 @@ AI对中国就业市场冲击：https://mistysun19.github.io/ai-jobs-cn/cn/
 * [广州公益慈善书院 - 社会生活中的交换与权力](https://www.daccp.org.cn/content/2606)
 * [羅伯特．席爾迪尼  -《影响力》](https://www.irisable.com/wp-content/uploads/2020/03/%E5%BD%B1%E5%93%8D%E5%8A%9B%EF%BC%88%E7%8F%8D%E8%97%8F%E7%89%88%EF%BC%89.pdf)
 
+**样本**
+
+* [一战法国只死了 4% 的人，为什么会普遍厌战？ - 照妖镜的回答 - 知乎](https://www.zhihu.com/question/2004842448501891746/answer/2005537474844323870)
+  * 选取错误的样本
+  * 选择错误的基数
+  * 使用正确的计算
+  * 得出荒谬的结论   
+
 
