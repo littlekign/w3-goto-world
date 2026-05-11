@@ -16,6 +16,7 @@
 * [BILIBILI - 哪些现象或征兆让你认定一个政权或王朝气数已尽？](https://www.bilibili.com/video/BV1cdn3zTEVG)
 * [教科书中有哪些细思恐极的细节？ - 鞭临天下的回答 - 知乎](https://www.zhihu.com/question/35495488/answer/1966243133709850424)
 * [14 岁初中生自学微积分半年「手搓」出一台航空发动机，含金量如何？对青少年教育有何启示？ - 铅笔的回答 - 知乎](https://www.zhihu.com/question/2027325698818286789/answer/2029279660291138946)
+* [知乎 - 如果话语权掌握在一群没道德的人的手里，社会会变成什么样子？](https://www.zhihu.com/question/2036371527231337085)
 
 ---
 
