@@ -54,6 +54,7 @@
 * [你做过最阴暗最龌龊的事是什么？ - 知乎](https://www.zhihu.com/question/47085653)
 * [有哪些你只能匿名说出来的秘密？  - 知乎](https://www.zhihu.com/question/265583638/answer/777715087)
 * [为什么中国的“巨婴”，一到国外就通情达理？ - 知乎](https://www.zhihu.com/question/589912672)
+* [为什么胖东来在郑州开店后，于东来会将40亿资产分配给员工？ - 观主沈星河的回答 - 知乎](https://www.zhihu.com/question/2015717714509997034/answer/2017012424830640505)
 
 ---
 
