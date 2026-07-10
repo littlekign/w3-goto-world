@@ -1,5 +1,7 @@
 ### 站点浏览
 
+思辨录：https://mind-guards.com
+
 年度访问量最大的网站：https://zh.semrush.com/trending-websites/
 
 商务预报：https://cif.mofcom.gov.cn/cif/html/indexCenter2024/index.html
