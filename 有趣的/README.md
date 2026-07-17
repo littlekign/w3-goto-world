@@ -12,7 +12,7 @@
 * 什么值得读：https://shenmezhidedu.com
 * 无产阶级图书馆：https://library.proletarian.me
 * brilliance-pub：https://www.brilliance-pub.com/
-* https://discuss.sci-hub.org.cn/d/279
+* sci-hub：https://discuss.sci-hub.org.cn/d/279
 * z库：https://zlibrary.vip
 * 臺灣學術期刊開放取用平台：https://toaj.stpi.niar.org.tw
 
